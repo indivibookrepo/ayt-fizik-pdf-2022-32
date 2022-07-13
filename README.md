@@ -1,0 +1,1 @@
+# ayt-fizik-pdf-2022-32
